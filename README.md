@@ -1,1 +1,1 @@
-Marta Vieira da Silva, commonly known as Marta, is widely regarded as one of the greatest female soccer players of all time, winning multiple FIFA Women's World Player of the Year awards.
+Diego Maradona's "Goal of the Century" against England in the 1986 World Cup was voted the FIFA Goal of the Century in 2002.
