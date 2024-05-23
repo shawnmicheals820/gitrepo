@@ -1,1 +1,1 @@
-Soccer has the power to transcend cultural and political divides, as seen in instances of soccer diplomacy, such as the "ping-pong diplomacy" between the US and China in the 1970s.
+Camp Nou, the home stadium of FC Barcelona, is the largest soccer stadium in Europe, with a seating capacity of over 99,000 spectators.
