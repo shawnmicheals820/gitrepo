@@ -1,1 +1,1 @@
-Camp Nou, the home stadium of FC Barcelona, is the largest soccer stadium in Europe, with a seating capacity of over 99,000 spectators.
+Franz Beckenbauer, nicknamed "Der Kaiser," won the FIFA World Cup as both a player (1974) and a manager (1990) with West Germany.
