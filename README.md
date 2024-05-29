@@ -1,1 +1,1 @@
-The Ajax Youth Academy, known as "De Toekomst" (The Future), is renowned for its emphasis on technical skill and attacking football, shaping generations of Dutch talent.
+Soccer has a unique ability to unite people from diverse backgrounds and cultures, fostering a sense of community and belonging among fans worldwide.
