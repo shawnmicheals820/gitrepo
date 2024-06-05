@@ -1,1 +1,1 @@
-The United States women's national soccer team is the most successful in Women's World Cup history, winning the tournament four times as of 2019.
+Camp Nou, the home stadium of FC Barcelona, is the largest soccer stadium in Europe, with a seating capacity of over 99,000 spectators.
