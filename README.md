@@ -1,1 +1,1 @@
-The introduction of Video Assistant Referee (VAR) technology has impacted the game by allowing officials to review key decisions, reducing controversial calls.
+Pele, whose real name is Edson Arantes do Nascimento, scored over 1,000 career goals and remains a global ambassador for the sport.
