@@ -1,1 +1,1 @@
-Soccer has a unique ability to unite people from diverse backgrounds and cultures, fostering a sense of community and belonging among fans worldwide.
+The 2014 FIFA World Cup semi-final between Brazil and Germany, which ended in a shocking 7-1 victory for Germany, is one of the most memorable matches in World Cup history.
