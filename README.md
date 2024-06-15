@@ -1,1 +1,1 @@
-The 2014 FIFA World Cup semi-final between Brazil and Germany, which ended in a shocking 7-1 victory for Germany, is one of the most memorable matches in World Cup history.
+The 1950 World Cup final between Uruguay and Brazil at the Maracanã Stadium in Rio de Janeiro remains the highest-attended soccer match in history, with over 173,000 spectators.
