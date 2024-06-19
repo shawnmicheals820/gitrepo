@@ -1,1 +1,1 @@
-The Old Firm derby between Scottish clubs Celtic and Rangers is steeped in religious and cultural history, dividing the city of Glasgow.
+Diego Maradona's "Goal of the Century" against England in the 1986 World Cup was voted the FIFA Goal of the Century in 2002.
