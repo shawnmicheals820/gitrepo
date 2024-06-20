@@ -1,1 +1,1 @@
-Diego Maradona's "Goal of the Century" against England in the 1986 World Cup was voted the FIFA Goal of the Century in 2002.
+The United States women's national soccer team is the most successful in Women's World Cup history, winning the tournament four times as of 2019.
