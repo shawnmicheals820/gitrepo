@@ -1,1 +1,1 @@
-The United States women's national soccer team is the most successful in Women's World Cup history, winning the tournament four times as of 2019.
+The Maracanã Stadium in Rio de Janeiro, Brazil, hosted two FIFA World Cup finals and was the venue for the opening and closing ceremonies of the 2016 Rio Olympics.
