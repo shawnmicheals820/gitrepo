@@ -1,1 +1,1 @@
-The Brazil national team's "Joga Bonito" (Beautiful Game) philosophy prioritizes flair, creativity, and entertaining play, reflecting the country's soccer culture.
+The rivalry between FC Barcelona and Real Madrid, known as "El Clásico," is one of the most intense and storied rivalries in world soccer.
